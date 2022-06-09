@@ -7,3 +7,5 @@ If I were an enzyme, I'd be DNA helicase so I could unzip your genes.
 Are you a concentration gradient? Because I wanna go down on you.
 
 If you were a fish, you'd be a zebrafish since you are a model.
+
+If I was a prey in a yeast two-hybrid system, I would always interact with you.
